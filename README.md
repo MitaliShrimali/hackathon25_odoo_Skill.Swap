@@ -1,0 +1,1 @@
+# hackathon25_odoo_Skill.Swap
